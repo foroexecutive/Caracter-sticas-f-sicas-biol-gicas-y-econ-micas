@@ -1,1 +1,2 @@
-# Caracter-sticas-f-sicas-biol-gicas-y-econ-micas
+# Características-físicas-biológicas-y-económicas
+Ubicación geográfica. Dentro del inmenso marco del llamado Sexto Continente o Continente del Sur, la Argentina reivindica sus derechos del sector cuyo vértice es el Polo Sur y su arco de circunferencia sobre el paralelo 60° s se extiende entre los meridianos 25° y 74°de longitud Oeste de Greenwich. Como es sabido, el continente antártico ha sido dividido convencionalmente en cuatro cuadrantes encontrándose el sector argentino en el Cuadrante Americano. Junto con el Cuadrante Australiano, son los más conocidos. Los restantes son el africano y el del Pacífico. 
